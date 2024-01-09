@@ -1,2 +1,1 @@
-# Hipopotomonstrosesquipedaliofobia.github.io
-un juego
+# JUEGOS-COMPATIBLES-CON-DISPOSITIVOS-AM2
